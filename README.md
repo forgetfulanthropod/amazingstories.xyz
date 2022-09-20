@@ -1,0 +1,2 @@
+# amazingstories.xyz
+amazingstories.xyz
